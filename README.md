@@ -1,3 +1,5 @@
-# **i do like programming things**
+# **Bio**
 
->Discord: **The Ceo Of Gamestop#3684**
+
+
+><img src="https://static.snapchat.com/favicon.ico" width=25 margin=25 /> Snap: **rennsho**
